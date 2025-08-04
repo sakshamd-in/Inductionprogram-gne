@@ -9,4 +9,7 @@ At 10:00am we all gathered in the auditorium,we were introduced to the legacy of
 We were addressed by our principal Dr Sehijpal Singh sir , Dr Harpreet kaur Grewal (HoD Applied sciences) , Dr Akshay girdhar(Dean academics), Dr Parminder singh(Dean student welfare) all the sessions were very bright.
 After that we had our Guest of honour- Er.Ravinder Garg (Chief Engineer, Municipal Corporation,Ludhiana) and Er.Rakesh Kumar( ADC Ludhiana).Both of them shared their journey and motivated us to do well in life
 The event came to an end by the words of Dr.KS Mann (HoD,IT).
+# Key points
+The day was very enthusiastic and came to end with very warm words
+# Day 2
 
