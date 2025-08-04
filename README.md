@@ -11,7 +11,7 @@ After that we had our Guest of honour- Er.Ravinder Garg (Chief Engineer, Municip
 The event came to an end by the words of Dr.KS Mann (HoD,IT).
 # Lab visits 🖥️💻
 We visited various labs of our computer science department.All the labs were very good and well maintained
-# Key points
+# Key points ✨
 The day was very enthusiastic and came to end with very warm words
 # Day 2
 
